@@ -1,1 +1,1 @@
-## Rozwi¹zania zadañ z listy 11.
+ï»¿## RozwiÄ…zania zadaÅ„ z listy 11.
